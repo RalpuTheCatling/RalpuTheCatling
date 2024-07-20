@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RalphTheCatling (misspelled Ralpu)
+- 👋 Hi, I’m @RalphTheCatling 
 - 👀 I’m interested in music and coding
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on making friends lmao
